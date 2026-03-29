@@ -7,7 +7,7 @@
 
 <p align="center">════════════════════════════</p>
 
-<img width="475" height=475 alt="spoke graphic by someone on dc" src="https://i.imgur.com/GxJAXxH.png)_d.webp?maxwidth=760&fidelity=grand" />
+![wemmbu graphic by me art not by me](https://files.catbox.moe/ajgjlx.png)
 
 ㅤིྀ𓎟ᛝ|‿‿‿‿ [rentry](https://rentry.co/wemmyybu) ||
  [atabook](https://vvillow.atabook.org) ‿‿‿‿| ᛝ𓎟 ྀྀི
