@@ -14,5 +14,5 @@
 
 <p align="center">︵︵︵︵︵︵ ۶ৎ ︵︵︵︵︵︵</p>
 
-ts is still a wip, bare with me bruv idk how to code in this website (secret message in the codes)
-<!-- SOMEONE PLEASE GIVE ME THE CODE FOR WEMMBU'S GRAPHIC I ONLY HAVE SPOKE'S -->
+changes might occur! so beware of very very big differences!
+<!-- Hi if you noticed this uhh why are you in my coding system,, -->
