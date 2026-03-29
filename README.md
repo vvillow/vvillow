@@ -1,7 +1,7 @@
-`.✧ hihihi!! int freely! unless I have dni in my nametag ꃋᴖꃋ
+<p align="center">`.✧ hihihi!! int freely! unless I have dni in my nametag ꃋᴖꃋ</p>
 
 
-ིྀ𓎟ᛝ|‿‿‿‿ [rentry!](https://rentry.co/wemmyybu) ||
+ ིྀ𓎟ᛝ|‿‿‿‿ [rentry!](https://rentry.co/wemmyybu) ||
  [atabook!](https://vvillow.atabook.org) ‿‿‿‿| ᛝ𓎟 ྀྀི
 
 <img width="475" height=475 alt="spoke graphic by someone on dc" src="https://i.imgur.com/GxJAXxH.png)_d.webp?maxwidth=760&fidelity=grand" />
