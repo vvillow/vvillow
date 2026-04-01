@@ -1,5 +1,5 @@
 <p align="center">⊹ ︵︵︵︵︵︵ ⊹ 𓏵 ⊹ ︵︵︵︵︵︵ ⊹</p>
-<p align="center">`.✧ hihihi!! w2i preferable, c+h freely! unless I have dniuf in my nametag 𐔌՞ ܸ.ˬ.ܸ ՞𐦯</p>
+<p align="center">`.✧ hihihi!! w2i preferably, c+h freely! unless I have dni in my nametag 𐔌՞ ܸ.ˬ.ܸ ՞𐦯</p>
 
 <p align="center">︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹</p>
 
