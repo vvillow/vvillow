@@ -1,3 +1,7 @@
+<div align="center">
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=vvillow.vvillow&right_color=blueviolet&left_text=%E2%98%85"
+</div>
+
 <img src="https://files.catbox.moe/koqdrl.png" alt="Description" width="1000">
 <p align="center"<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d6784b3d-6872-4349-9259-124f93b4ba3c" />  
   <a href="https://id.pinterest.com/wemmyybu">
