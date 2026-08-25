@@ -6,7 +6,7 @@
 -----
 
 
-<p align="center">⊹ ࣪ ˖꒰ঌㅤ𝐖𝐢𝐥𝐥𝐨𝐰ㅤㅤ𝐨𝐫ㅤㅤ𝐀𝐯𝐞𝐫𝐲ㅤ✧ㅤ𝐚𝐧𝐲 ㅤ𓆪ㅤㅤ𝐚𝐥𝐥ㅤ໒꒱.⋆˚࿔ </p>
+  <p align="center">$${\color{green}⊹ ࣪ ˖꒰ঌ \space \color{green}𝐖𝐢𝐥𝐥𝐨𝐰 \space \color{green}𝐨𝐫 \space \color{lightgreen}𝐀𝐯𝐞𝐫𝐲 \space \color{lightgreen}✧ \space \color{lightgreen}𝐚𝐧𝐲 \space \color{beige}𓆪 \space \color{beige}𝐚𝐥𝐥 \space \color{beige}໒꒱.⋆˚࿔}$$</p>
 
 <p align="center"><a href="https://vvillow.straw.page"><img width="100" height="100"
 <img src="https://files.catbox.moe/i5yn19.gif" alt="strawpage"><a href="https://vvillow.straw.page"><a href="https://vvillow.atabook.org"><img width="100" height="100"
